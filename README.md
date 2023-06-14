@@ -1,0 +1,2 @@
+# PANAMA
+Provincias de Panama
